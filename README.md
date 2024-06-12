@@ -1,1 +1,0 @@
-# JS-nome-profissional.jpg
